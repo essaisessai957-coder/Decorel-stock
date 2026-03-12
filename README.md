@@ -1,0 +1,1 @@
+# Decorel-stock
